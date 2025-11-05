@@ -3,4 +3,4 @@
 ‎⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ [ata](https://spokewashere.atabook.org/)⠀⠀⠀[strawpage](
 https://thetime.straw.page/)
 
-‎⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ <sub> c*h encouraged, cudcomf & touchcomf
+‎⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ‎⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀<sub> c*h encouraged, cudcomf & touchcomf
